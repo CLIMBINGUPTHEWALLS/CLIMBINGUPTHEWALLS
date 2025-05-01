@@ -4,7 +4,7 @@
 
 <h6 align="center"> 
 
-  ![](https://komarev.com/ghpvc/?username=dude-97&style=flat-square&color=250e0e)
+  ![](https://komarev.com/ghpvc/?username=dude-97&style=flat-square&color=7d6352&label=POPULATION)
   
 [strwpg](https://theearthisalsothirsty.straw.page)ㅤㅤ†ㅤㅤ[disc](https://discordapp.com/users/608256345304596490)ㅤㅤ†ㅤㅤ[steam](https://steamcommunity.com/id/theearthishungryy/)ㅤㅤ†ㅤㅤ[tg](https://t.me/p1dudemybeloved)
 
