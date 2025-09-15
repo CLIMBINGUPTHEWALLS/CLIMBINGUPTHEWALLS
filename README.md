@@ -1,7 +1,7 @@
 <h6 align="center"> 
 
 
-<img src="https://github.com/user-attachments/assets/54704204-59a1-4619-a4bb-e51ae8ffbed9" width="500">
+<img src="https://github.com/user-attachments/assets/ef3f5bcf-5cd4-4136-9381-543c54e30a3d" width="500">
 
 <h6 align="center"> 
 
